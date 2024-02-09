@@ -1,4 +1,3 @@
-# flash-usdt-btc
 
 💥 This Flash BTC or USDT Stay in your wallet for up to 90 days
 
@@ -75,17 +74,6 @@ sᴏғᴛᴡᴀʀᴇ
 🛰️ NERA Protocol
 
 🛰️ Tezos
-
-
-
-
-🇨 🇷 🇹 🇵 🇹 🇴  𝙏𝘼𝘽
-
-Transaction details = 09/02/2024
-https://tronscan.org/#/transaction/c6e27981968a0bd62eef61497478deb31369142b403073a37fa46d4780bc6a6b
-
-
-
 
 
 𝔽𝕃𝔸𝕊ℍ 𝔹𝕋ℂ ℙ𝕣𝕚𝕔𝕖
@@ -226,8 +214,6 @@ FLASH BTC
 
 
 
-
-
 Note : If you want to Flash USDT , you can make USDT Flash the amount of BTC Price. 
 
 
@@ -237,6 +223,11 @@ Note : If you want to Flash USDT , you can make USDT Flash the amount of BTC Pri
 
 
 🛑NO Free DEMO 🛑 🛑No Free Trial  🛑
+
+
+
+Telegram- https://t.me/F_Crypto2024
+website : http://btc-flash.myshopify.com/ 
 
 
 
